@@ -1,0 +1,6 @@
+![Screenshot 2024-03-28 230338](https://github.com/asyl0/task2_news/assets/155817793/501084cf-b03c-4edf-861c-49b2336e9d00)
+![Screenshot 2024-03-28 230606](https://github.com/asyl0/task2_news/assets/155817793/404cf1c3-2d2d-4fe8-bd83-0cfec0d2eb92)
+![Screenshot 2024-03-28 230637](https://github.com/asyl0/task2_news/assets/155817793/0553ec2f-ed09-4ede-b8be-e5969a23ba57)
+![Screenshot 2024-03-28 230649](https://github.com/asyl0/task2_news/assets/155817793/9909f868-e8a0-4489-b413-fb0961b196eb)
+![Screenshot 2024-03-28 230703](https://github.com/asyl0/task2_news/assets/155817793/0df83549-3fa8-4113-87b0-cde022ba6398)
+![Screenshot 2024-03-28 231050](https://github.com/asyl0/task2_news/assets/155817793/6925bccc-7336-4ca2-b9fc-2e68301c4ced)
